@@ -7,7 +7,8 @@
 <br>
 <br>立刻每天打10通电话过来我手机，联系一下。
 <br>立刻加我[微信/QQ/GMail/FB]。说出“法轮功”三个字。
-<br>[+8613533863284]/[723374363]/[jyuumoutora@gmail.com]/[www.facebook.com/kirakira.otoko]
+<br>[+8613533863284]/[723374363]/
+<br>[jyuumoutora@gmail.com]/[www.facebook.com/kirakira.otoko]/
 <br>做不到吗？主动点,直至成功交流为止.
 <br>
 <br>[Say a hello please .]
